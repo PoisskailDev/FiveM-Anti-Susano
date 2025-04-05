@@ -1,6 +1,6 @@
 # PREVIEW :
 
-[![Watch the video](https://i.postimg.cc/qvvRT0hw/image.png)](https://www.youtube.com/watch?v=epIKoQn8dwI)
+[![Watch the video](https://i.postimg.cc/vHRqkHjR/image.png)](https://www.youtube.com/watch?v=epIKoQn8dwI)
 
 
 
